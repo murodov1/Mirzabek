@@ -1,0 +1,2 @@
+# Mirzabek
+mening birinchi loyiham
